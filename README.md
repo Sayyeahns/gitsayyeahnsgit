@@ -1,0 +1,2 @@
+# gitsayyeahnsgit
+HerHalGeçicidir
